@@ -2,7 +2,7 @@
 
 Before we dive into the full details of how you can claim your $25 Amazon gift card, we want to make sure you don’t miss out on this limited-time offer! Simply follow the easy steps provided below, and you’ll have your Amazon gift card in no time. Whether you’re an avid online shopper or just want a little extra to spend on your next Amazon haul, claiming this free gift card is a no-brainer. Keep reading to find out how to get your $25 Amazon gift card today!
 
-### [✅CLICK HERE TO GET NOW FREE!](https://www.fpo.go.th/main/fpo/media/FPO/allgifttodayfree.html)
+### [✅CLICK HERE TO GET NOW FREE!](https://todaysfree.xyz/)
 
 Amazon has become a one-stop shop for millions of people across the globe, offering everything from electronics to home goods, groceries, and even services. If you’re like many other shoppers, you’ve probably found yourself wondering how you can get some extra spending power for your next Amazon purchase. Fortunately, there are several legitimate ways to score a $25 Amazon gift card for free.
 
